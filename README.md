@@ -3,7 +3,7 @@
 
 ![Screenshot](https://s10.iimage.su/s/28/gSgPf9RxtFhzh3pwSJKwyzNzYR7FIq69wboZ5l0lh.png)
 
-Откуда достать ссылку:
+# Откуда_достать_ссылку:
 
 ![Screenshot](https://s10.iimage.su/s/28/th_gTr49lzxAVO0r4VXKN86Y3kwBs9mLwDkQpd4Wbuuu.png)
 
